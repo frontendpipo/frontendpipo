@@ -4,4 +4,4 @@ I’m currently on my Software Engineering program (where I actually learned how
 
 How to reach me:
 Pietro Paixão Santos @ LinkedIn: https://www.linkedin.com/in/pietropaixaosantos/
-@pietropaixaosantos @ Instagram.
+@pietropaixaosantos @ Instagram: https://www.instagram.com/pietropaixaosantos/
